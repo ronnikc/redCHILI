@@ -87,3 +87,6 @@ Some people prefer to eat their chili con carne with rice and served with salads
 
 
 Having a burning time 😊
+
+
+Ps. Personally i always put Carolina Reapers in the dish as well, but it is not for children or people with a weak constitution ;)
