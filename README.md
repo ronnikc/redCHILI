@@ -1,28 +1,28 @@
 # redCHILI
 
 Chop up:
-Carrots
-Onions
-Garlic
-Red pepper
-3-4 different kinds of chili (Habanero, Jalapenos + 1-2 more strength depending on audience)
-Spanish Chorizo Sausage
-Smoked Bacon
+• Carrots
+• Onions
+• Garlic
+• Red pepper
+• 3-4 different kinds of chili (Habanero, Jalapenos + 1-2 more strength depending on audience)
+• Spanish Chorizo Sausage
+• Smoked Bacon
 
 Find and prepare the following spices:
-Crushed Cumin
-Smoked Paprika
-Salt
-Pepper
-Cayenne (Main ingredient)
-Oregano
-Dark Cocoa Powder (used to fatten the dish with the cayenne – if making children friendly more of this and less cayenne for adults the other way around)
+• Crushed Cumin
+• Smoked Paprika
+• Salt
+• Pepper
+• Cayenne (Main ingredient)
+• Oregano
+• Dark Cocoa Powder (used to fatten the dish with the cayenne – if making children friendly more of this and less cayenne for adults the other way around)
 
 Also prepare:
-Tomato Puré (1 little can per 1 kg beef)
-Minced Beef (1kg for 4 people)
-Red Kidney Beans (2 cans per 1kg beef – remember to wash them intensively to get away the can taste)
-1 glass of water (around 25 cl per 1 kg beef)
+• Tomato Puré (1 little can per 1 kg beef)
+• Minced Beef (1kg for 4 people)
+• Red Kidney Beans (2 cans per 1kg beef – remember to wash them intensively to get away the can taste)
+• 1 glass of water (around 25 cl per 1 kg beef)
 
 Now you start up a big casserole and add the carrots, onions, garlic + smoked paprika, smoked bacon and a little cayenne pepper and some of the chilis.
 
