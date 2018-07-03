@@ -17,6 +17,7 @@ Chop up:
 • Smoked Bacon
 
 
+
 Find and prepare the following spices:
 
 • Crushed Cumin
@@ -34,6 +35,7 @@ Find and prepare the following spices:
 • Dark Cocoa Powder (used to fatten the dish with the cayenne – if making children friendly more of this and less cayenne for adults the other way around)
 
 
+
 Also prepare:
 
 • Tomato Puré (1 little can per 1 kg beef)
@@ -44,6 +46,9 @@ Also prepare:
 
 • 1 glass of water (around 25 cl per 1 kg beef)
 
+
+
+The cooking:
 
 Now you start up a big casserole and add the carrots, onions, garlic + smoked paprika, smoked bacon and a little cayenne pepper and some of the chilis.
 
